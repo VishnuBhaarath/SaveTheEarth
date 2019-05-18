@@ -14,7 +14,7 @@ The danger to earth can come at any time or in any form, it could come in the fo
 * COLOUR: White
   
  ## SUPER HUMAN POWERS
-   He is strong, brave, fast and have learned all the *martial arts* known to Human race, he is not a superhuman by birth but has attained all the skills which makes him superior than any *superHuman*. He can jump up to a height of *10ft* from the floor without using his supersuit. He can take 10000 push ups shows his *hardwork* and *dedication* to reach his current status. 
+   He is strong, brave, fast and have learned all the *martial arts* known to Human race, he is not a superhuman by birth but has attained all the skills which makes him superior than any *superHuman*. He can jump up to a height of *10ft* from the floor without using his supersuit. He can take 10000 push ups shows his *hardwork* and *dedication* to reach his current status. He mastered the art of *1-inch punch* and has a very good reflex, he can even escape from bullets fired at him. He has a very good physique and a very good *IQ* and a *grandmaster* in chess.
 
  ## WEAPONS
    To protect the earth from dangers, human powers is not enough, we need some force apart from it. *SuperNinja* solves this problem too, he had designed a suit for himself which only the *SuperNinja* can operate, the suit can make him fly, the suit even reflects all the attacks which are made on him,the suit can do everything he wishes. Now here comes his most powerful weapon **sword**, which only the **SuperNinja** can lift that too with his suit. The **Sword** and the **Supersuit** almost made him invincible.
