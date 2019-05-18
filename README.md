@@ -13,7 +13,7 @@ The danger to earth can come at any time or in any form, it could come in the fo
 * HAIR: Blond
 * COLOUR: White
   
- ##SUPER HUMAN POWERS
+ ## SUPER HUMAN POWERS
    He is strong, brave, fast and have learned all the *martial arts* known to Human race, he is not a superhuman by birth but has attained all the skills which makes him superior than any *superHuman*. He can jump up to a height of *10ft* from the floor without using his supersuit. He can take 10000 push ups shows his *hardwork* and *dedication* to reach his current status. 
 
  ## WEAPONS
